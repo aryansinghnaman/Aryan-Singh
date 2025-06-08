@@ -22,7 +22,7 @@ aryan-singh-163876290
 
 ---
 
-_"Building ideas into reality, one line of code at a time."_ 🚀
+_"Passionate about writing elegant code and building seamless user experiences."_ 🚀
 
 
 
